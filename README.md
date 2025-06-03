@@ -23,7 +23,7 @@ I'm a computer science student driven by a deep interest in **Artificial Intelli
 
 ###
 
-<img align="right" height="150" src="https://tenor.com/bbb09.gif" />
+<img align="right" height="150" src="<div class="tenor-gif-embed" data-postid="15021793" data-share-method="host" data-aspect-ratio="1" data-width="100%"><a href="https://tenor.com/view/typing-hello-kitty-tap-working-gif-15021793">Typing Hello Kitty GIF</a>from <a href="https://tenor.com/search/typing-gifs">Typing GIFs</a></div> <script type="text/javascript" async src="https://tenor.com/embed.js"></script>" />
 
 ###
 
