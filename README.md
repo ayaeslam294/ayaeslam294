@@ -23,7 +23,7 @@ I'm a computer science student driven by a deep interest in **Artificial Intelli
 
 ###
 
-<img align="right" height="https://i.pinimg.com/originals/b5/5e/0f/b55e0f8e89908f2e853780d0841d38a9.gif" />
+<img align="right" height="https://media.giphy.com/media/v1.Y2lkPTc5MGI3NjExY2w2M3gxZXUzc2dyaG80bTQ2eGd0ZWVxNGdjcnVlYWFla3A3emw2cyZlcD12MV9naWZzX3NlYXJjaCZjdD1n/RbDKaczqWovIugyJmW/giphy.gif" />
 
 ###
 
