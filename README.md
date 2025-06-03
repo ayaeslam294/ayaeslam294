@@ -23,7 +23,7 @@ I'm a computer science student driven by a deep interest in **Artificial Intelli
 
 ###
 
-<img align="right" height="150" src="https://tenor.com/view/typing-hello-kitty-tap-working-gif-15021793" />
+<img align="right" height="https://i.pinimg.com/originals/b5/5e/0f/b55e0f8e89908f2e853780d0841d38a9.gif" />
 
 ###
 
