@@ -23,7 +23,7 @@ I'm a computer science student driven by a deep interest in **Artificial Intelli
 
 ###
 
-<img align="right" height="150" src="https://media.giphy.com/media/QTfX9Ejfra3ZmNxh6B/giphy.gif" />
+<img align="right" height="150" src="https://www.pinterest.com/pin/hello-kitty-gifs--686024955752499650/" />
 
 ###
 
