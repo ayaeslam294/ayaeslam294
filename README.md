@@ -23,7 +23,7 @@ I'm a computer science student driven by a deep interest in **Artificial Intelli
 
 ###
 
-<img align="right" height="https://media1.tenor.com/m/1RlqvQq1llIAAAAC/hellokitty-typing.gif" />
+<img align="right" height="https://media1.tenor.com/m/1RlqvQq1llIAAAAd/hellokitty-typing.gif" />
 
 ###
 
